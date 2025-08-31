@@ -2,5 +2,5 @@ https://carrillo4juan23.wixsite.com/carrilloj-des3205-p2 (East Highland Destistr
 https://carrillo4juan23.wixsite.com/portfolio (Personal Portfolio)
 https://carrillo4juan23.wixsite.com/jc-design3205-proj1 (California Theatre of Performing Arts Remake)
 https://carrillo4juan23.wixsite.com/project4 (Yosemite national park sPARK Website)
-https://carrillo4juan23.wixsite.com/my-site-1 (In progress / HP site project)
+https://carrillo4juan23.wixsite.com/my-site-1) (In progress / HP site project)
 https://carrillo4juan23.wixsite.com/mysite (2019 portfolio GLA Arroyo Valley)
